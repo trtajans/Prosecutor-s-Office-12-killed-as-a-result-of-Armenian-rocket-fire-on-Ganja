@@ -1,0 +1,1 @@
+# Prosecutor-s-Office-12-killed-as-a-result-of-Armenian-rocket-fire-on-Ganja
